@@ -1,1 +1,0 @@
-# Kart-to-world-champion
